@@ -14,5 +14,5 @@ Create a free account first.
 
 Alternatively, find the book at: https://figshare.com/articles/journal_contribution/candid_commutators_sylow_pdf/17105330 
 OR
-your sopport at
+your support at
 https://www.amazon.com/dp/B09MWMNCMM/ref=sr_1_1?keywords=candid+commutators&qid=1638468365&sr=8-1 is highly regarded.
