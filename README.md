@@ -12,4 +12,6 @@ To read the book in overleaf, zip the entire content of the folder and UPLOAD to
 https://www.overleaf.com/project
 Create a free account first.
 
-Alternatively, find the book at: https://figshare.com/articles/journal_contribution/candid_commutators_sylow_pdf/17105330
+Alternatively, find the book at: https://figshare.com/articles/journal_contribution/candid_commutators_sylow_pdf/17105330 OR
+your opport at 
+https://www.amazon.com/dp/B09MWMNCMM/ref=sr_1_1?keywords=candid+commutators&qid=1638468365&sr=8-1 is highly regarded.
